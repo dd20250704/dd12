@@ -19,6 +19,6 @@
 
 综上，打造资源丰富、播放流畅、安全合规、SEO优化完善的平台，才能让“日本AV免费”关键词排名第一，赢得用户和搜索引擎认可。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd20250704/dd12 ）</span>
 
 
